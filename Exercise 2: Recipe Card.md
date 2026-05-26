@@ -3,8 +3,11 @@
 ## Ingredients
 
 -2 eggs
+
 -2 slices of bread 
+
 -ketchup
+
 -cooking oil
 
 1. **Fry the Egg**: Melt a small pat of butter in a frying pan over medium heat. Crack the egg directly into the pan. Poke the yolk with a spatula if you want it cooked flat, and let it cook for 2 minutes.
