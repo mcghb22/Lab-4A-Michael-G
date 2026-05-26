@@ -1,6 +1,6 @@
-#**Michael G** introduction
+# **Michael G** introduction
 
-##Hobbies
+## Hobbies
 
 -hi im michael and i like to *bike ride*
 
